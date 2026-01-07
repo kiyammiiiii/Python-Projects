@@ -1,0 +1,1 @@
+This is NIKOLA my first AI Project. I am still planning on developing her and add more features when I can finally afford xD 
